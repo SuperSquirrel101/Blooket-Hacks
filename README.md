@@ -5,4 +5,4 @@ Blooket Hacks Bookmarklet
 2. Put in any name
 3. Put the url in as the code
 4. click on it when your on blooket
-5.Tada!!!
+5.Tada!!!             You did it!!!
